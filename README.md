@@ -1,6 +1,6 @@
 # Hi 👋 My name is Parivalavan
 
-## Full Stack Developer
+## Designer | Developer | Freelancer 
 
 # 💫 About Me:
 
